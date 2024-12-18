@@ -1,5 +1,9 @@
 ✧  Helloozz !! I’m known moztly az Azure o(≧▽≦)o
- ---> @markusheart dni. 🚫
+
+ ---> @Markusheart dni. 🚫
+
+✧ thiz iz for pony town ^^"
+
 ✰ 🌱 fandomz i am in, Dw,Toh,Md,Ava,Avm,Reg and many other (i forgot them zo if u mention a fandom i might know it or be in it!!!)
 
 ᯓ★ 💤 Pronounz!--> She/They/Xe/Cat/Star =3
