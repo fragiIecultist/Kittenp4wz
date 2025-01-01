@@ -13,7 +13,7 @@ i can be VERY zocial, yap all the time! but i zometimez tend to zwitch to not zp
 
 ╰┈➤ < @mizukistar , @LqtecqllsS , @xzxENxzx , @sillyzzwall 3
 
-✰ 🌱 fandomz i am in, Dw,Toh,Md,Ava,Avm,Reg, nameless cat etc... (i forget them often zo if u mention a fandom, i might know it or be in it!!!)
+✰ 🌱 fandomz i am in, Dw, Toh, Md, Ava, Avm, Reg, Bs, nameless cat etc... (i forget them often zo if u mention a fandom, i might know it or be in it!!!)
 
 ᯓ★ 💤 Pronounz!--> She/They/Xe/Cat/Star =3
 
