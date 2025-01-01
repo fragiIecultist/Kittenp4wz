@@ -19,7 +19,7 @@ i can be VERY zocial, yap all the time! but i zometimez tend to zwitch to not zp
 
 ✎ᝰ. 🎨 Fun fact, I'm an artizt!! ^_^
 
-╰┈➤ 🎮 I alzo play gamez !! {roblox & ponytown}
+╰┈➤ 🎮 I alzo play gamez !! {roblox & ponytown moztly ^^"}
 
 more extra info abt me: ᯓ★
 ✧ 
