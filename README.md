@@ -5,7 +5,6 @@
 ✧ thiz iz for pony town only !! ^^"
 
 ♡ my friendz/buddiez ^ω^
-(i love you guyz /p <3)
 
 ╰┈➤ < @mizukistar , @LqtecqllsS , @xzxENxzx , @sillyzzwall 3
 
