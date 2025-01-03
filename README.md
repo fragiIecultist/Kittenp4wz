@@ -1,7 +1,8 @@
 ✧  Helloozz !! I’m known moztly az Azure o(,,^_^,,)o
 
-✰ im not offline THAT often...
-MY WIFE CHAT !!! ---> < @mizukistar 3
+✰ im not online THAT often...i think..
+
+♡♡♡ MY WIFE CHAT !! --> < @mizukistar 3
 
 ✧ thiz iz for pony town only !! ^^"
 
