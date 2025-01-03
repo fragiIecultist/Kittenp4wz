@@ -1,12 +1,13 @@
 ✧  Helloozz !! I’m known moztly az Azure o(,,^_^,,)o
 
-✰ ill be taking a bit of a break , zorry guyz.
+✰ im not offline THAT often...
+MY WIFE CHAT !!! ---> < @mizukistar 3
 
 ✧ thiz iz for pony town only !! ^^"
 
 ♡ my friendz/buddiez ^ω^
 
-╰┈➤ < @mizukistar , @LqtecqllsS , @xzxENxzx , @sillyzzwall 3
+╰┈➤ < @LqtecqllsS , @xzxENxzx , @sillyzzwall 3
 
 ✎ᝰ. 🎨 Fun fact; I'm an artizt!! ^_^
 
