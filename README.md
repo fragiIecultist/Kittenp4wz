@@ -11,8 +11,8 @@ FOLLOW HER NOW !!!!!!!!!!
 
 ╰┈➤ < @LqtecqllsS , @xzxENxzx , @sillyzzwall 3
 
-hi wall...!
-{ wall get out of my clozet NOW ! }
+hi mason...!
+{ wall/gooby/mason, get out of my clozet NOW !! how the hell did you even manage to get in there AND fit in there ?????????}
 
 ✎ᝰ. 🎨 Fun fact; I'm an artizt!! ^_^
 
