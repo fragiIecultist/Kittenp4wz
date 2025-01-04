@@ -1,4 +1,4 @@
-✧  Helloozz !! I’m known moztly az Azure o(,,^_^,,)o
+✧  Helloozz !! I’m known moztly az Azure i go by Azelia too !! o(,,^_^,,)o
 
 ✰ im not online THAT often...i think..
 
