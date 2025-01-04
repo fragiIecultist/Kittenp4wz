@@ -2,7 +2,8 @@
 
 ✰ im not online THAT often...i think..
 
-♡♡♡ MY WIFE CHAT !! --> < @mizukistar 3
+♡ my zilly wife --> @mizukistar ,,>_<,, 
+FOLLOW HER NOW !!!!!!!!!!
 
 ✧ thiz iz for pony town only !! ^^"
 
