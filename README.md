@@ -1,19 +1,28 @@
 ✧  Helloozz !! I’m known moztly az Azure i go by Azelia too !! o(,,^_^,,)o
 
-✰ im not online THAT often...i think..
+🚫 dni if you think theze wilm bother you!
+my pt ztatuz meaningz !!
+💬 = (looking 4 chat) int freely & c+h
+🌙 = dniuid / int only if you're a greename
+⛔️ = im buzy & will lezz likely,
+reply late / not reply at all
 
-♡ my zilly wife --> @mizukistar ,,>_<,, 
+🌈 pleaze be patient with me. uze tone tagz zince i can be zlow at timez or take zomething zeriouzly.
+
+🍓 im not online THAT often...i think..
+
+❣️ my zilly wife --> @mizukistar ,,>_<,, 
 FOLLOW HER NOW !!!!!!!!!!
 
 ✧ thiz iz for pony town only !! ^^"
 
-♡ my friendz/buddiez ^ω^
-
-╰┈➤ < @LqtecqllsS , @xzxENxzx , @sillyzzwall 3
+My friendz/buddiez ^ω^
+╰┈➤ @LqtecqllsS , @xzxENxzx , @sillyzzwall ᯓ+.★
 
 hi mason...!
-{ wall/gooby/mason, get out of my clozet NOW !! how the hell did you even manage to get in there AND fit in there ?????????}
+{ gooby, get out of my clozet NOW !! }
 
-✎ᝰ. 🎨 Fun fact; I'm an artizt!! ^_^
+🎨✎ᝰ. I'm an artizt!! ^_^
 
-╰┈➤ 🎮 I alzo play gamez !! {roblox & ponytown moztly ^^"}
+╰┈➤ 🎮 I alzo play roblox (,,>ヮ<,,)b
+uzer: Sunny_Foggy // you can follow me if you wizh but, do NOT friend me !!)
