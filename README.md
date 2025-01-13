@@ -1,11 +1,12 @@
 ✧  Helloozz !! I’m known moztly az Azure i go by Azelia too !! o(,,^_^,,)o
 
-🚫 dni if you think theze wilm bother you!
-my pt ztatuz meaningz !!
+🚫 dni if you think theze will bother you!
+I'm a... multizhipper, xenogender uzer, clingy at timez & zlow at timez. { read ztrawpage for more info }
+
+my ponytown ztatuz meaningz !!
 💬 = (looking 4 chat) int freely & c+h
-🌙 = dniuid / int only if you're a greename
-⛔️ = im buzy & will lezz likely,
-reply late / not reply at all
+🌙 = dniuid / int only if you're a greename!
+⛔️ = im buzy & will lezz likely reply or not reply at all.
 
 🌈 pleaze be patient with me. uze tone tagz zince i can be zlow at timez or take zomething zeriouzly.
 
