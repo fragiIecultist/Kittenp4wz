@@ -1,4 +1,6 @@
 ✧  Helloozz !! I’m known moztly az Azure i go by Azelia too !! o(,,^_^,,)o
+(check rentry for all the namez i go by =3)
+
 
 🚫 dni if you think theze will bother you!
 I'm a... multizhipper, xenogender uzer, clingy at timez & zlow at timez. { read ztrawpage for more info }
