@@ -3,7 +3,7 @@
 
 
 🚫 dni if you think theze will bother you!
-I'm a... multizhipper, xenogender uzer, clingy at timez & zlow at timez. { read ztrawpage for more info }
+I'm a... multizhipper, xenogender uzer, clingy at timez & zlow at timez. { read rentry for more info }
 
 my ponytown ztatuz meaningz !!
 
